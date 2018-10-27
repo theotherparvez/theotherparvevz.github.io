@@ -1,2 +1,2 @@
-# theotherparvevz.github.io
+# theotherparvez.github.io
 Personal Portfolio
